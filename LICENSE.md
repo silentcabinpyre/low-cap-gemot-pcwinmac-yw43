@@ -1,4 +1,4 @@
-# 
+# Instantané low cap gem sniper bot modèles pour Mac OS | VIP low cap gem sniper bot modèles pour PC Windows. Avec faible latence et ordres limite — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
